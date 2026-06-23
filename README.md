@@ -6,4 +6,4 @@
 
  <p align="center">
    ⠀⠀
-   ${\textsf{\color{#FF69B4} ᛝch enc 　+ 　ask 4 discord}}$<br><img width="399" height="40"
+   ${\textsf{\color{#FF69B4} salt, mut, and kaizer r cool}}$<br><img width="399" height="40"                                                           
