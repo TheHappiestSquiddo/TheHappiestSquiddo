@@ -6,5 +6,4 @@
   <p align="center">  <a href="https://squidooio.straw.page">strawpage</a>
 <p align="center">  <a href="https://squiddoo.atabook.org/">ata</a>
  <p align="center">
-   ⠀⠀
-   ${\textsf{\color{#FF69B4} salt, mut, and kaizer r cool}}$<br><img width="399" height="40"                                                           
+   ⠀⠀ 
